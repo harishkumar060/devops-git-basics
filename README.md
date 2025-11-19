@@ -1,0 +1,1 @@
+Hi, this is Harish Kumar. I'm coming from madurai, currently working as project engineer in Wipro technologies. I have 4+ years of experience working in IT industry. I have skills in Power BI, SQL, Mircrosoft Azure ADF. My hobby is watching movies and playing cricket.
